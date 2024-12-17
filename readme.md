@@ -1437,3 +1437,11 @@ The list of birds observed during the Jamnagar Wetland's previous census
 
 ![Sociable Lapwing](https://cdn.download.ams.birds.cornell.edu/api/v1/asset/140160171/320)
 
+#
+
+#
+
+> All rights reserved to the respective owners. This includes, but is not limited to, images, photographs, and other media.
+
+### For education purpose only
+### List drafted by - Murtuza Zabuawala, Dahod, Gujarat
